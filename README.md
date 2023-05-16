@@ -1,0 +1,1 @@
+# kaz-shimada.github.io
